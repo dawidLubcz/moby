@@ -1,0 +1,1 @@
+dawid.lubczynski2@gmail.com Szczecin Poland
